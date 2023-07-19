@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Smit-dev
-- 👀 I’m interested in ...Web 3 and looking to meet great peers and contribute in my best capacity
+- 👀 I’m interested in ...
 - 🌱 I’m currently learning ...Java and web development 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...Insta-smit_2405
